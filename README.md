@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @alltheangels 👼
 - 👀 I’m interested in ... (military) history, literature, music, art, technology, ipods 🤓
-- 🌱 I’m currently learning ... python 😯
+- 🌱 I’m currently learning ... python and japanese (and a little yiddish) 😯
 - 💞️ I’m looking to collaborate on ... friendship 🥺
 - 📫 How to reach me ... don't... 😏
 
